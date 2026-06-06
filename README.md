@@ -1,4 +1,4 @@
-Kelompok Domic Jaya:
+Kelompok Dominic Jaya:
 - Ahmad Sudais				              (23/520192/PA/22352)
 - Iffa Hesti Adlik Putri			      (23/514098/PA/21977)
 - Iqbal Pandu Santoso			          (23/517100/PA/22150)
